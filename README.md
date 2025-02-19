@@ -1,1 +1,0 @@
-# lkb_foottbal_scrap
